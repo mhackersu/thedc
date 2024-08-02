@@ -3,7 +3,7 @@ export default defineAppConfig({
   docus: {
     title: 'The Digital Catechism',
     description: 'Open-source Simplified Catechism',
-    image: '',
+    image: 'noto-v1:orthodox-cross',
     socials: {
       twitter: 'ki5ibd',
       github: 'mhackersu/thedc.com',
@@ -31,9 +31,8 @@ export default defineAppConfig({
     },
     footer: {
       credits: {
-        icon: 'la:cross',
-        text: 'Runs on NuxtJS',
-        href: 'https://nuxt.com',
+        icon: 'noto-v1:orthodox-cross',
+        text: 'Be blsssed'
       }
     }
   }
