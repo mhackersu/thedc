@@ -1,13 +1,13 @@
-# Docus Starter
+# The Digital Catechism
 
-Starter template for [Docus](https://docus.dev).
+Open-Source Simplified Catechism
 
 ## Clone
 
-Clone the repository (using `nuxi`):
+Clone the repository:
 
 ```bash
-npx nuxi init -t themes/docus
+git clone https://github.com/mhackersu/thedc.com
 ```
 
 ## Setup
@@ -54,4 +54,4 @@ yarn preview
 
 ---
 
-For a detailed explanation of how things work, check out [Docus](https://docus.dev).
+For a detailed explanation of how things work, check out the Docus [docs](https://docus.dev).
