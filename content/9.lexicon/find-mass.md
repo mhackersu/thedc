@@ -1,0 +1,1 @@
+# Attend local mass
