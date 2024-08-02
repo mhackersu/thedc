@@ -28,6 +28,13 @@ export default defineAppConfig({
       showLinkIcon: true,
       exclude: [],
       fluid: true
+    },
+    footer: {
+      credits: {
+        icon: 'IconNuxtStudio',
+        text: 'Runs on NuxtJS',
+        href: 'https://nuxt.com',
+      }
     }
   }
 })
