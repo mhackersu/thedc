@@ -30,9 +30,17 @@ Can be deployed to Vercel Functions, Netlify Functions, AWS, and most Node-compa
 
 Look at all the available presets [here](https://v3.nuxtjs.org/guide/deploy/presets).
 
-```bash
-yarn build
-```
+  ```bash [npm]
+  npm install
+  ```
+
+  ```bash [yarn]
+  yarn install
+  ```
+
+  ```bash [pnpm]
+  pnpm install --shamefully-hoist
+  ```
 
 ## Static Generation
 
