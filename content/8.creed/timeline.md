@@ -1,0 +1,131 @@
+---
+title: Timeline
+icon: la-cross
+main:
+  fluid: true
+---
+
+# Apostles Creed Timeline
+*(historical context in italics)*
+## 200
+**200** **Irenaeus describes a creed**
+
+Has some similarities to the Apostles' Creed.
+*(May have been a bit of a precurser)*
+## 220
+**220** **Early Latin version**
+
+*Tertullian in North Africa publishes a version*
+## 235
+**235** **Fall of the Severan Dynasty** 
+
+*Christian persecutation "begins".*
+## 311
+**311** *(April)* **Galerius's Edict of Toleration** *(Edict of Serdica)*
+
+*The Edict implicitly granted Christianity the status of religio licita,
+a worship that was recognized and accepted by the Roman Empire.*
+## 313
+**313** *(Feburary)* **Edict of Milan**
+
+*The agreement to treat Christians benevolently within the Roman Empire.
+Western Roman Emperor Constantine I and Emperor Licinius, who controlled
+the Balkans, met in Mediolanum (modern-day Milan) and, among other
+things, agreed to change policies towards Christians following the edict
+of toleration issued by Emperor Galerius two years earlier in Serdica.
+The Edict of Milan gave Christianity legal status and a reprieve from
+persecution.*
+
+**313** *(June)* - **Licinius's Letter**
+
+## 330
+**330** - **Marcellus, from Asia Minor, pens a similar creed**
+
+## 325
+**325** - **Council of Nicaea**
+
+*The Nicene Creed was developed at the council of Niceia, or First Council of Nicaea, which was a council of Christian bishops and was convened in the Bithynian city of Nicaea (now İznik, Turkey) by the Roman Emperor Constantine I in AD 325.*
+
+*Originally, the Nicene Creed was developed in response to the heretical
+beliefs about Jesus being spread by a Christian leader named Arius. The
+Catholic bishops, pope, and the Emperor Constantine gathered to affirm
+the Church\'s beliefs about the one God who is Father, Son, and Holy
+Spirit. The Nicene Creed is very descriptive about Jesus\'s humanity and
+divinity because it was formulated in response to misguided teachings of
+Arius and other heresies.*
+
+*A priest named Arius presented his argument that Jesus Christ was not an eternal being, that He was created at a certain point in time by the Father. Bishops such as Alexander and the deacon Athanasius argued the opposite position: that Jesus Christ is eternal, just like the Father is. It was an argument pitting trinitarianism against monarchianism. Constantine prodded the 300 bishops in the council to make a decision by majority vote defining who Jesus Christ is. The statement of doctrine they produced was one that all of Christianity would follow and obey, called the “Nicene Creed.” This creed was upheld by the church and enforced by the Emperor. The bishops at Nicea voted to make the full deity of Christ the accepted position of the church. The Council of Nicea upheld the doctrine of Christ’s true divinity, rejecting Arius’s heresy. The council did not invent this doctrine. Rather, it only recognized what the Bible already taught.*
+
+---
+
+---
+## 340
+
+**340** **First penned version of the Apostles' Creed**
+
+## 380
+
+**380** *(February)* **Edict of Thessalonica**
+
+*The edict was followed in 381 by the First Council of Constantinople,
+which affirmed the Nicene Symbolum and gave final form to the
+Nicene-Constantinopolitan Creed. The edict was issued under the
+influence of Ascholius, and thus of Pope Damasus I, who had appointed
+him. It re-affirmed a single expression of the Apostolic Faith as
+legitimate in the Roman Empire, \"catholic\" (that is, universal) and
+\"orthodox\" (that is, correct in teaching). The Nicene Creed states:
+\"We believe in one God, the Father Almighty \... And in one Lord Jesus
+Christ.\" It declares Jesus Christ be \"consubstantial with the
+Father,\" which may be interpreted as numerical or as qualitative
+sameness. The Nicene Creed adds that we also believe in the Holy Spirit
+but does not say that the Holy Spirit is consubstantial with the Father.
+The Edict of Thessalonica goes much further and declares \"the Father,
+the Son and the Holy Spirit\" to be \"one deity \... in equal majesty
+and in a holy Trinity.\"*
+
+## 381
+
+**381** **Council of Constantinople**
+
+Condemmed Arianism as heresies of "foolish madmen".
+*(authorized punishment)*
+
+## 390
+
+**390** **Rufinus writes a similar creed after study in Rome, Egypt, and Judea**
+
+## 397
+
+**397** **New Testament is Cannonized**
+
+## 650
+
+**650** **Creed is standard in Gaul** 
+*(Gaul is modern day France)* 
+*Augustine, a bishop in North Africa, reports*
+
+## 750
+
+**750** **Modern Accepted Text**
+
+The modern accepted text is penned by Pirminius from what is not
+modern day Switzerland
+
+## 1965
+
+**1965** **Catholic–Orthodox Joint Declaration of 1965**
+
+*The Catholic–Orthodox Joint Declaration of 1965 was read out on 7 December 1965 simultaneously at a public meeting of the Second Vatican Council in Rome and at a special ceremony in Istanbul. It withdrew the exchange of excommunications between prominent ecclesiastics in the Holy See and the Ecumenical Patriarchate of Constantinople, commonly known as the Great Schism of 1054. It did not end the schism but showed a desire for greater reconciliation between the two churches, represented by Pope Paul VI and Ecumenical Patriarch Athenagoras I. The document and accompanying texts are also referred to as 'Tomos Agapes' ('Document of Love'). Many Orthodox reacted negatively to the declaration. Metropolitan Philaret of the Russian Orthodox Church Abroad openly challenged the Patriarch's efforts at rapprochement with the Roman Catholic Church, claiming that it would inevitably lead to heresy, in his 1965 epistle to the Patriarch. The monks at Mount Athos reportedly excluded Athenagoras from their daily prayers after the declaration.*
+
+The **“Great Schism”**, as historians call it, took place in 1054 over what most people today would call trivial differences. Here are some of the minor differences that destroyed the unity of the church:
+
+1. The wording of the Nicene Creed. The original form, written in 325 AD at the Council of Nicaea, said this about the Holy Spirit: “And [we believe] in the Holy Ghost, the Lord and Giver-of-Life, who proceedeth from the Father, who with the Father and the Son together is worshipped and glorified, who spake by the prophets.” In the sixth century, the Western (Roman/Latin) Church began adding the “filioque” phrase to the creed, “proceedeth from the Father AND THE SON”, thus making the creed more Trinitarian.  This does not seem like much, but it was one of the main causes of the schism. 
+
+2. Whether leavened or unleavened bread should be used in the Eucharist. The Western (Roman/Latin) Church used unleavened bread; the Orthodox Church used leavened bread.
+
+3. Whether the Bishop of Rome (Pope) had universal authority over the entire church, or whether he was one of five equal jurisdictional leaders—the Bishops of Rome, Constantinople, Alexandria, Jerusalem, and Antioch. 
+
+4. Whether yellow or gold was a proper liturgical color. Yellow or gold are not used in the Western (Roman/Latin) Church. In Orthodox Churches, it is a default color on Sundays when no liturgical color is specified. 
+
+5. How Easter Sunday was determined.  The Western (Roman/Latin) Church used the Gregorian calendar; the Orthodox Church used the Julian calendar.
+

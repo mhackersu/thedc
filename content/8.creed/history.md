@@ -1,0 +1,151 @@
+## Summary
+
+*Beliefs about Jesus separate Christians from everyone else. Jesus was a
+specific person, born of a woman, executed under a specific Roman
+governor. Unlike mythological deities, he did not come from the distant
+and hazy past --- he interacted with the real world. He had a real body
+that was born, crucified and buried, and yet he was divine, too ---
+conceived by the Holy Spirit, resurrected, ascended into heaven at a
+position of supreme power. He is the unique Son of God, a unique Lord
+who is above all earthly lords, and he is the Judge who will return to
+earth to determine everyone's reward.*
+
+### Origins
+
+*There is no evidence that the creed was written by the apostles or Paul
+himself; While what is stated in the creed is not found verbatum in Holy
+scriptures, the creed is most certainly scriptural. It's debatable, but
+the Apostles\' Creed probably developed mostly between the 2nd and the
+3th centuries starting with some written accounts around 200. The first
+copy of the Apostles' Creed pops up around 340, before the NT was
+cannonized. The text can be traced back earlier to the Old Roman Creed,
+which is referenced by some of the early Church Fathers. In 650,
+Augustine, a bishop in North Africa, reports that the Apostles' Creed is
+standard. Safe to say, 400-500 year time period of total development.*
+
+### Authority
+
+*Historically, the Apostles' Creed is believed to be in full agreement
+with the apostolic writings, and the same churches have historically
+accepted both the Creed and the Scriptures as authoritative, as faithful
+reports of what the apostles taught. Numerous scriptures could be
+mentioned as support for the various points of the Creed, to wit, the
+second purpose of this paper; To provide an exegesis in terms of
+specfically, which scripture(s), and what they have to say, specifically
+for each part of the total twelve parts of the entire creed.*
+
+### Historical Relevance
+
+*The Apostles' Creed begins with a simple statement of faith in God, who
+has all power and is the originator of everything. The Apostles Creed
+expresses our belief in the Trinity: Father, Son, and Holy Spirit. The
+Apostles' Creed is not the Nicene Creed. The Nicene Creed is a rejection
+of pagan mythologies and it was acceptable to Jews and to some of the
+more educated Greeks. The word creed comes from the Latin word
+\"credo,\" which means believe. We begin a statement of our Christian
+beliefs with the word \"credo\" or \"I believe...\" There were a number
+of types baptisimal creeds during the second century (during the time of
+persecution, after the apostles, but before the conversion of
+Constantine). Baptisimal Creeds were used for educational purposes, like
+a call and response, stated, Christian, what do you believe? The
+Christian would then respond to the call, afirming the Church\'s beliefs
+about the one God who is Father, Son, and Holy Spirit. A baptisimal
+creed is a statement of faith that Chritians, affirm, accepting the
+Triune God is an essential part of baptism from the very beginning of
+the church.*
+
+### Nicene Creed
+*The Apostles Creed includes two phrases that are not found in the Nicene Creed.*
+- First, \"He descended into hell\"
+- Second, \"the communion of saints\"
+
+## Themes
+
+*Most of the Creed is about **Jesus Christ**, the person of, and the
+defining, and definitive doctrine for, the Christian faith, entirely. It
+is also about the **Trinue God**. Two additional themes that are
+presented include first, the communion of saints, which refers to the
+holy men and women in heaven who remain united with us through the
+Church, and secondly, the active participation of the Christian in the
+crucificition theme, specifically referring to the time in between
+Jesus\'s death and resurrection when he welcomed all righteous souls
+into salvation. Additionally, in terms of His death, **decent** into
+hell, and **ressuruction** on the third day, describes specifically the
+mechanics of how salvation works and how we are saved and actually come
+to have newness of life thru being buried with Him in baptism into
+death.*
+
+### Trinue God
+
+**The Trinitarian belief originates in Jesus\'s Great Commission of the
+Apostles in Matthew 28 to baptize in the name of the Father and of the
+Son and of the Holy Spirit.**
+
+**Mat 28** In the end of the sabbath, as it began to dawn toward the
+first day of the week, came Mary Magdalene and the other Mary to see the
+sepulchre. 2 And, behold, there was a great earthquake: for the angel of
+the Lord descended from heaven, and came and rolled back the stone from
+the door, and sat upon it. 3 His countenance was like lightning, and his
+raiment white as snow: 4 And for fear of him the keepers did shake, and
+became as dead men. 5 And the angel answered and said unto the women,
+Fear not ye: for I know that ye seek Jesus, which was crucified. 6 He is
+not here: for he is risen, as he said. Come, see the place where the
+Lord lay. 7 And go quickly, and tell his disciples that he is risen from
+the dead; and, behold, he goeth before you into Galilee; there shall ye
+see him: lo, I have told you. 8 And they departed quickly from the
+sepulchre with fear and great joy; and did run to bring his disciples
+word. 9 And as they went to tell his disciples, behold, Jesus met them,
+saying, All hail. And they came and held him by the feet, and worshipped
+him. 10 Then said Jesus unto them, Be not afraid: go tell my brethren
+that they go into Galilee, and there shall they see me. 11 Now when they
+were going, behold, some of the watch came into the city, and shewed
+unto the chief priests all the things that were done. 12 And when they
+were assembled with the elders, and had taken counsel, they gave large
+money unto the soldiers, 13 Saying, Say ye, His disciples came by night,
+and stole him away while we slept. 14 And if this come to the
+governor\'s ears, we will persuade him, and secure you. 15 So they took
+the money, and did as they were taught: and this saying is commonly
+reported among the Jews until this day. 16 Then the eleven disciples
+went away into Galilee, into a mountain where Jesus had appointed them.
+17 And when they saw him, they worshipped him: but some doubted. 18 And
+Jesus came and spake unto them, saying, All power is given unto me in
+heaven and in earth. 19 Go ye therefore, and teach all nations,
+baptizing them in the name of the Father, and of the Son, and of the
+Holy Ghost: 20 Teaching them to observe all things whatsoever I have
+commanded you: and, lo, I am with you alway, even unto the end of the
+world. Amen.
+
+### Descent into Hell
+
+### Communion of Saints
+
+## Sources 
+
+- Since You Asked Podcast - Jim Berrier (CGM Radio)
+
+- The Apostles' Creed - Grace Communion International
+
+- Constantine the Great and Christianity - Wikipedia
+
+- The Apostles Creed vs. Nicene Creed -- The Religion Teacher (YouTube)
+
+- Mere Christianity -- C.S. Lewis
+
+- Merriam Webster Dictionary, 2022
+
+- Martin Luther
+
+- The Dates of Easter Sunday -- Panos Antsaklis, Notre Dame, Indiana
+
+- Wikipedia, 2022
+
+**V0.9.1**
+
+*This paper presents the historic statement of beliefs that is the
+Apostles' Creed, and its biblical influence, one of each the twelve
+sections at a time. The creed is a brief, but complete, foundational
+resource that is well established across both Old Testament and New
+Testament narratives. The creed is a well-rounded representation of the
+Christian faith.*
+
+Maintainer: <a href="https://github.com/mhackersu" target="_blank">@mhackersu</a>
