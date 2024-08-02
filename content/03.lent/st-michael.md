@@ -1,6 +1,6 @@
 # St Michael
 
-  ::card{icon=simple-icons:markdown}
+  ::card{icon=noto:crossed-swords}
   #title
   Lent
   #description
