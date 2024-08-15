@@ -5,7 +5,7 @@
   Lent
   #description
   Saint Michael the Archangel, pray for us now and in the hour of our need!
-  ![my image](/art/st-michael.jpg)
+  ![my image](/art/st-michael-sm.jpg)
 
   ::
 
