@@ -1,118 +1,194 @@
 # Gatekeepers
 
-  -[Attention Gatekeepers](https://prepareforthelamb.wordpress.com/2012/05/15/gatekeepers-watchmen-you-are-to-speak-out-the-lord-has-called-you-out-to-be-bold-today/#:~:text=According%20to%20the%20Old%20Testament,of%20protecting%20the%20Lord's%20house.)
+# Attention Gatekeepers
 
-  Gatekeepers! Watchmen! You are to speak out (The Lord has called you out to be Bold today)
-ON MAY 15, 2012 BY ANCIENT PATHSIN BIBLE STUDY
-Gatekeepers have three primary roles
+Gatekeepers have three primary roles.
 
 To protect the Lord’s house.  This means they defend the gospel, the truth of the Word and Protect the holiness of God’s house. Their hearts are on fire with the Fear of the Lord. They want the Lord’s house to be a house of Prayer and they are not content until they see the Lord’s will come to place. The gatekeeper protects the House. They know the scriptures well and are full of understanding. They are bold to speak out against the sins of the church- even if it means they will be mocked, hated or even kicked out of the church. They stay close to the House of the Lord
 They keep the Lord’s people on the right path, keeping them from drifting from the Lord. As a staff or sheepdog would keep the sheep together from straying, so the role of gatekeeper is the same. He is responsible to oversee the people, gently guide the drifter back and keep those on the threshold of evil paths from taking another step in the wrong direction. They are bold and not afraid to tell the truth of God;s word, knowing full well they are saving many from the fires of eternal hell.They are prayer warriors and intercessors for the people
-They keep watch for the master’s return; ready to usher in the King of Glory
 
-Who is a gatekeeper?
-According to the Old Testament, a gatekeeper was a Levite. Gatekeepers where also watchmen on the walls.They were ministering priests from the tribe of Levi. Gatekeepers were trusted officials and high priests in the servant role of protecting the Lord’s house. They were stationed at all 4 gates (N,S, E, W). They also appointed and taught others around them to guard the gate as well. Their hearts were fully committed to the Lords will. Today’s gatekeepers hope and pray for revival and eagerly await the Lord’s return. They are always prepared and continually remind others to be ready. Gatekeepers made sure that nothing unholy entered into God’s house and nothing was allowed to leave unless it had approval. They were in charge of the Temple items and treasuries of the House of the Lord.
+Gatekeepers keep watch for the master’s return; ready to usher in the King of Glory.
 
-RUNNING AWAY FROM THIS IS NOT AN OPTION (Jonah didn’t win) You are commanded to speak out and warn them
+## Who are the gatekeepers
 
-Pay attention : (Ez) The Lord’s Message came to me: “Son of man, speak to your people. Tell them, ‘If I bring war on this land and the people take one of their citizens and make him their watchman, and if the watchman sees war coming and blows the trumpet, warning the people, then if anyone hears the sound of the trumpet and ignores it and war comes and takes him off, it’s his own fault. He heard the alarm, he ignored it—it’s his own fault. If he had listened, he would have saved his life.
-6“‘But if the watchman sees war coming and doesn’t blow the trumpet, warning the people, and war comes and takes anyone off, I’ll hold the watchman responsible for the bloodshed of any unwarned sinner.‘
-“You, son of man, are the watchman. I’ve made you a watchman for Israel. The minute you hear a message from me, warn them. If I say to the wicked, ‘Wicked man, wicked woman, you’re on the fast track to death!’ and you don’t speak up and warn the wicked to change their ways, the wicked will die unwarned in their sins and I’ll hold you responsible for their bloodshed. But if you warn the wicked to change their ways and they don’t do it, they’ll die in their sins well-warned and at least you will have saved your own life.
-“Son of man, I’ve made you a watchman for the family of Israel. Whenever you hear me say something, warn them for me. If I say to the wicked, ‘You are going to die,’ and you don’t sound the alarm warning them that it’s a matter of life or death, they will die and it will be your fault. I’ll hold you responsible. But if you warn the wicked and they keep right on sinning anyway, they’ll most certainly die for their sin, but you won’t die. You’ll have saved your life.
-“And if the righteous turn back from living righteously and take up with evil when I step in and put them in a hard place, they’ll die. If you haven’t warned them, they’ll die because of their sins, and none of the right things they’ve done will count for anything—and I’ll hold you responsible. But if you warn these righteous people not to sin and they listen to you, they’ll live because they took the warning—and again, you’ll have saved your life.”
+According to the Old Testament, a gatekeeper was a Levite. Gatekeepers where also watchmen on the walls. They were ministering priests from the tribe of Levi. Gatekeepers were trusted officials and high priests in the servant role of protecting the Lord’s house. They were stationed at all 4 gates (N,S, E, W). They also appointed and taught others around them to guard the gate as well. Their hearts were fully committed to the Lords will. Today’s gatekeepers hope and pray for revival and eagerly await the Lord’s return. They are always prepared and continually remind others to be ready. Gatekeepers made sure that nothing unholy entered into God’s house and nothing was allowed to leave unless it had approval. They were in charge of the Temple items and treasuries of the House of the Lord.
 
-“Gatekeepers: gather the drifters and show them the right way”
+The story of Jonah is one of the more well-known narratives in the Bible and is found in the Old Testament, specifically in the Book of Jonah. It is a short book, consisting of only four chapters, but it carries significant theological and moral themes.
 
+### Summary of the Story of Jonah
 
+**1. Jonah's Commission (Jonah 1):**
+   - God commands Jonah, a prophet, to go to the city of Nineveh and preach against it because of its wickedness.
+   - Instead of obeying God's command, Jonah attempts to flee from the presence of the Lord. He boards a ship heading to Tarshish, which is in the opposite direction of Nineveh.
 
- 
+**2. The Storm and the Great Fish (Jonah 1-2):**
+   - While Jonah is on the ship, God sends a great storm, endangering the vessel and its crew. The sailors, fearing for their lives, cast lots to determine who is responsible for the storm, and the lot falls on Jonah.
+   - Jonah admits that he is fleeing from God and suggests that the sailors throw him overboard to calm the storm. Reluctantly, they do so, and the storm ceases immediately.
+   - Jonah is swallowed by a "great fish" (often depicted as a whale) and remains in its belly for three days and three nights. During this time, Jonah prays to God, expressing his repentance and gratitude.
+
+**3. Jonah's Mission in Nineveh (Jonah 3):**
+   - After three days, the fish vomits Jonah onto dry land. God commands Jonah a second time to go to Nineveh.
+   - This time, Jonah obeys and goes to Nineveh, a large and wicked city. He preaches that the city will be overthrown in forty days unless they repent.
+   - Surprisingly, the people of Nineveh, from the king to the commoners, believe Jonah's message. They fast, wear sackcloth, and turn from their evil ways. Seeing their repentance, God shows mercy and decides not to destroy the city.
+
+**4. Jonah's Anger and God's Lesson (Jonah 4):**
+   - Jonah is displeased and angry that God spared Nineveh, as he had wanted to see the city punished for its wickedness. He expresses his frustration to God and even wishes for death.
+   - God responds by teaching Jonah a lesson in compassion. He causes a plant to grow to provide shade for Jonah, but then He sends a worm to destroy the plant. Jonah is upset about the loss of the plant, and God uses this to illustrate the importance of caring for the people of Nineveh, who are far more valuable than a plant.
+
+### Themes and Lessons:
+- **Obedience and Disobedience:** Jonah's initial refusal to follow God's command and his subsequent punishment highlight the importance of obedience to divine will.
+- **Repentance and Mercy:** The story emphasizes God's willingness to forgive those who repent, as demonstrated by the repentance of the Ninevites and God’s mercy toward them.
+- **God's Sovereignty:** The narrative underscores God's control over nature and events, such as the storm and the fish.
+- **Compassion:** God teaches Jonah (and the reader) about the importance of compassion, not just for oneself or one's people, but for all humanity.
+
+The story of Jonah is often interpreted as a parable about God's mercy and the universality of His concern for all people, not just the Israelites.
+
+### “Gatekeepers: gather the drifters and show them the right way”
 
 Gatekeepers role of protecting the people :  The gatekeepers of these last days have been commissioned to protect the sheep. You are to devote yourselves to holiness and to protect the sheep from drifting away.
 
    I saw a great crowd of people and no one was going the right way. Great crowds were everywhere. Not one person was facing the same way as another. Everyone was going and looking in different directions, scattering themselves. They weren’t concerned with where they were headed and kept walking in whatever direction they turned without any consideration. There was a lot of noise, and as I looked around I heard deep within my heart and all around me “Gatekeepers for the drifting”.
 
- This is not a topic I would have written about nor have I ever considered the term gatekeeper of the drifters. However when I did research I found it quite interesting. If you are reading this,  it may be your time to stand up and speak in the righteousness of the Lord- not for our own self-righteousness, but for the Honor of the Lord and for the salvation of those who are about to perish. We can no longer fear what man thinks, what he may say, do, or even notice their countenance – Fear God and what lies ahead for all of us. Take your stand and don’t turn to look around to the right or left, who cares what people think- ask yourself this “What does the Lord say?”.  Will he call you “Good and faithful servant” or an “evil coward”. Yikes, I know, that sounds harsh, but that’s what the scripture says. Don’t we all wish we could be make everyone happy with our words, but that is not our job. Our duty is to speak the truth in Love, snatching up those about to perish. Amen? Amen.
+If you are reading this,  it may be your time to stand up and speak in the righteousness of the Lord - not for our own self-righteousness, but for the Honor of the Lord and for the salvation of those who are about to perish. We can no longer fear what man thinks, what he may say, do, or even notice their countenance – Fear God and what lies ahead for all of us. Take your stand and don’t turn to look around to the right or left, who cares what people think- ask yourself this “What does the Lord say?”.  Will he call you “Good and faithful servant” or an “evil coward”. Yikes, I know, that sounds harsh, but that’s what the scripture says. Don’t we all wish we could be make everyone happy with our words, but that is not our job. Our duty is to speak the truth in Love, snatching up those about to perish.
 
-Biblical examples of why some drift or fall away
+### What causes those to drift?
 
-envy
-false teachings
-temptation
-wickedness
-laziness
-fear, lack of faith, no fear of the Lord
-love of money
-sitting and standing with the wrong crowd (Ps 1)
-unbelief
-How can I help my fallen brother?
+- Envy
+- False teachings
+- Temptation
+- Wickedness
+- Laziness
+- Fear, lack of faith, no fear of the Lord
+- Love of money
+- Sitting and standing with the wrong crowd (Ps 1)
+- Unbelief
 
-Remind them that we must all repent of our sins  Revelation 2:5 Remember therefore from whence thou art fallen, and repent, and do the first works; or else I will come unto thee quickly, and will remove thy candlestick out of his place, except thou repent.
-Teach them to listen carefully and cling tightly to the Good News : But you must continue to believe this truth and stand firmly in it. Don’t drift away from the assurance you received when you heard the Good News. The Good News has been preached all over the world, and I, Paul, have been appointed as God’s servant to proclaim it.  So we must listen very carefully to the truth we have heard, or we may drift away from it.
-Warn them of false teachings and doctrines: 2 Thessalonians 2:3Let no man deceive you by any means: for that day shall not come, except there come a falling away first, and that man of sin be revealed, the son of perdition;
-Tell them they have to choose. Do you belong to the World or to the Lord. Warn them of the dangers of being lukewarm. Luke 8:13They on the rock are they, which, when they hear, receive the word with joy; and these have no root, which for a while believe, and in time of temptation fall away.
-Continue to minister to them: Colossians 1:23If ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel, which ye have heard, and which was preached to every creature which is under heaven; whereof I Paul am made a minister;
-Praying always for believers everywhere, without ceasing
-TELL THE PEOPLE: Tell them, ‘As sure as I am the living God, I take no pleasure from the death of the wicked. I want the wicked to change their ways and live. Turn your life around! Reverse your evil ways! Why die, Israel?’
-TELL THE PEOPLE: There’s more, son of man. Tell your people, ‘A good person’s good life won’t save him when he decides to rebel, and a bad person’s bad life won’t prevent him from repenting of his rebellion. A good person who sins can’t expect to live when he chooses to sin. It’s true that I tell good people, “Live! Be alive!” But if they trust in their good deeds and turn to evil, that good life won’t amount to a hill of beans. They’ll die for their evil life.
+### How can I help those who have fallen?
 
-TELL THE PEOPLE : On the other hand, if I tell a wicked person, “You’ll die for your wicked life,” and he repents of his sin and starts living a righteous and just life—being generous to the down-and-out, restoring what he had stolen, cultivating life-nourishing ways that don’t hurt others—he’ll live. He won’t die. None of his sins will be kept on the books. He’s doing what’s right, living a good life. He’ll live.
+Remind them that we must all repent of our sins.
 
-‘Your people say, “The Master’s way isn’t fair.” But it’s the way they’re living that isn’t fair. When good people turn back from living good lives and plunge into sin, they’ll die for it. And when a wicked person turns away from his wicked life and starts living a just and righteous life, he’ll come alive.
+Revelation 2:5 Remember therefore from whence thou art fallen, and repent, and do the first works; or else I will come unto thee quickly, and will remove thy candlestick out of his place, except thou repent.
 
- 
+Teach them to listen carefully and cling tightly to the gospel of Jesus Christ.
+
+Warn them of false teachings and doctrines.
+
+2 Thessalonians 2:3 - Let no man deceive you by any means: for that day shall not come, except there come a falling away first, and that man of sin be revealed, the son of perdition.
+
+Continue to minister to them.
+
+Colossians 1:23 - If ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel, which ye have heard, and which was preached to every creature which is under heaven; whereof I Paul am made a minister.
+
+### Praying always for believers everywhere, without ceasing
 
 A gatekeeper protects the house of the Lord from corruption and worldly ideas. Stand true to the Word of God and do not waver. Protect the people from following lies, false ideas and wrong doctrine. Protect and cling tightly to the Word of God, protecting the Lord’s house and His Ways. You must keep the people from stumbling off the narrow path. Keep the Lord’s sheep safe until He comes back again, always staying ready and looking out for your master to return.  He has commanded us to watch for His return.
 
-SCRIPTURE TO THINK ABOUT: (proof to back up what I’ve written above)
+### Holy scripture regarding gatekeepers
 
-Nehemiah 7:3 I said to them, “Do not leave the gates open during the hottest part of the day. And even while the gatekeepers are on duty, have them shut and bar the doors. Appoint the residents ofJerusalem to act as guards, everyone on a regular watch. Some will serve at sentry posts and some in front of their own homes.”
-Nehemiah 10:39 The people and the Levites must bring these offerings of grain, new wine, and olive oil to the storerooms and place them in the sacred containers near the ministering priests, the gatekeepers, and the singers. “We promise together not to neglect theTemple of our God.”
-Psalm 84:10A single day in your courts is better than a thousand anywhere else! I would rather be a gatekeeper in the house of my God than live the good life in the homes of the wicked.
-Mark 13:34“The coming of the Son of Man can be illustrated by the story of a man going on a long trip. When he left home, he gave each of his slaves instructions about the work they were to do, and he told the gatekeeper to watch for his return.
-John 10:3The gatekeeper opens the gate for him, and the sheep recognize his voice and come to him. He calls his own sheep by name and leads them out.
-Colossians 1:23  But you must continue to believe this truth and stand firmly in it. Don’t drift away from the assurance you received when you heard the Good News. The Good News has been preached all over the world, and I, Paul, have been appointed as God’s servant to proclaim it.
-Hebrews 2:1[ A Warning against Drifting Away ] So we must listen very carefully to the truth we have heard, or we may drift away from it.
-Psalm 141:4Don’t let me drift toward evil or take part in acts of wickedness. Don’t let me share in the delicacies of those who do wrong.
-Psalm 94:18When I said, My foot slippeth; thy mercy, O LORD, held me up.
-Psalm 18:36Thou hast enlarged my steps under me, that my feet did not slip.
-Job 12:5He that is ready to slip with his feet is as a lamp despised in the thought of him that is at ease.
-Hebrews 6:6If they shall fall away, to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put him to an open shame.
-2 Thessalonians 2:3Let no man deceive you by any means: for that day shall not come, except there come a falling away first, and that man of sin be revealed, the son of perdition;
-Luke 8:13They on the rock are they, which, when they hear, receive the word with joy; and these have no root, which for a while believe, and in time of temptation fall away.
-Colossians 1:23If ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel, which ye have heard, and which was preached to every creature which is under heaven; whereof I Paul am made a minister;
-Acts 20:24
+#### Nehemiah 7:3
+
+I said to them, “Do not leave the gates open during the hottest part of the day. And even while the gatekeepers are on duty, have them shut and bar the doors. Appoint the residents ofJerusalem to act as guards, everyone on a regular watch. Some will serve at sentry posts and some in front of their own homes.”
+
+#### Nehemiah 10:39
+
+The people and the Levites must bring these offerings of grain, new wine, and olive oil to the storerooms and place them in the sacred containers near the ministering priests, the gatekeepers, and the singers. “We promise together not to neglect theTemple of our God.”
+
+#### Psalm 84:10
+A single day in your courts is better than a thousand anywhere else! I would rather be a gatekeeper in the house of my God than live the good life in the homes of the wicked.
+
+#### Mark 13:34
+The coming of the Son of Man can be illustrated by the story of a man going on a long trip. When he left home, he gave each of his slaves instructions about the work they were to do, and he told the gatekeeper to watch for his return.
+
+#### John 10:3
+The gatekeeper opens the gate for him, and the sheep recognize his voice and come to him. He calls his own sheep by name and leads them out.
+
+#### Colossians 1:23
+But you must continue to believe this truth and stand firmly in it. Don’t drift away from the assurance you received when you heard the Good News. The Good News has been preached all over the world, and I, Paul, have been appointed as God’s servant to proclaim it.
+
+#### Hebrews 2:1
+So we must listen very carefully to the truth we have heard, or we may drift away from it.
+
+#### Psalm 141:4
+Don’t let me drift toward evil or take part in acts of wickedness. Don’t let me share in the delicacies of those who do wrong.
+
+#### Psalm 94:18
+When I said, My foot slippeth; thy mercy, O LORD, held me up.
+
+#### Psalm 18:36
+Thou hast enlarged my steps under me, that my feet did not slip.
+
+#### Job 12:5
+He that is ready to slip with his feet is as a lamp despised in the thought of him that is at ease.
+
+#### Hebrews 6:6
+If they shall fall away, to renew them again unto repentance; seeing they crucify to themselves the Son of God afresh, and put him to an open shame.
+
+#### 2 Thessalonians 2:3
+Let no man deceive you by any means: for that day shall not come, except there come a falling away first, and that man of sin be revealed, the son of perdition;
+
+#### Luke 8:13
+They on the rock are they, which, when they hear, receive the word with joy; and these have no root, which for a while believe, and in time of temptation fall away.
+
+#### Colossians 1:23
+If ye continue in the faith grounded and settled, and be not moved away from the hope of the gospel, which ye have heard, and which was preached to every creature which is under heaven; whereof I Paul am made a minister;
+
+#### Acts 20:24
 But none of these things move me, neither count I my life dear unto myself, so that I might finish my course with joy, and the ministry, which I have received of the Lord Jesus, to testify the gospel of the grace of God.
-Acts 17:5
+
+#### Acts 17:5
 But the Jews which believed not, moved with envy, took unto them certain lewd fellows of the baser sort, and gathered a company, and set all the city on an uproar, and assaulted the house of Jason, and sought to bring them out to the people.
-Acts 7:9And the patriarchs, moved with envy, sold Joseph into Egypt: but God was with him,
-Acts 2:25For David speaketh concerning him, I foresaw the Lord always before my face, for he is on my right hand, that I should not be moved:
-Jeremiah 25:16And they shall drink, and be moved, and be mad, because of the sword that I will send among them.
-Proverbs 12:3A man shall not be established by wickedness: but the root of the righteous shall not be moved.
-Psalm 121:3He will not suffer thy foot to be moved: he that keepeth thee will not slumber.
-Psalm 112:6Surely he shall not be moved for ever: the righteous shall be in everlasting remembrance.
-Psalm 66:9Which holdeth our soul in life, and suffereth not our feet to be moved.
-Psalm 62:6He only is my rock and my salvation: he is my defence; I shall not be moved.
-Psalm 62:2He only is my rock and my salvation; he is my defence; I shall not be greatly moved.
-Psalm 46:5God is in the midst of her; she shall not be moved: God shall help her, and that right early.
-Psalm 30:6And in my prosperity I said, I shall never be moved.
-Psalm 16:8I have set the LORD always before me: because he is at my right hand, I shall not be moved.
-1 Chronicles 17:9Also I will ordain a place for my people Israel, and will plant them, and they shall dwell in their place, and shall be moved no more; neither shall the children of wickedness waste them any more, as at the beginning,
-Jude 1:24Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy,
-2 Peter 1:10Wherefore the rather, brethren, give diligence to make your calling and election sure: for if ye do these things, ye shall never fall:
-James 5:12But above all things, my brethren, swear not, neither by heaven, neither by the earth, neither by any other oath: but let your yea be yea; and your nay, nay; lest ye fall into condemnation.
-James 1:2My brethren, count it all joy when ye fall into divers temptations;
+
+#### Acts 7:9
+And the patriarchs, moved with envy, sold Joseph into Egypt: but God was with him,
+
+#### Acts 2:25
+For David speaketh concerning him, I foresaw the Lord always before my face, for he is on my right hand, that I should not be moved:
+
+#### Jeremiah 25:16
+And they shall drink, and be moved, and be mad, because of the sword that I will send among them.
+
+#### Proverbs 12:3
+A man shall not be established by wickedness: but the root of the righteous shall not be moved.
+
+#### Psalm 121:3
+He will not suffer thy foot to be moved: he that keepeth thee will not slumber.
+
+#### Psalm 112:6
+Surely he shall not be moved for ever: the righteous shall be in everlasting remembrance.
+
+#### Psalm 66:9
+Which holdeth our soul in life, and suffereth not our feet to be moved.
+
+#### Psalm 62:6
+He only is my rock and my salvation: he is my defence; I shall not be moved.
+
+#### Psalm 62:2
+He only is my rock and my salvation; he is my defence; I shall not be greatly moved.
+
+#### Psalm 46:5
+God is in the midst of her; she shall not be moved: God shall help her, and that right early.
+
+#### Psalm 30:6
+And in my prosperity I said, I shall never be moved.
+
+#### Psalm 16:8
+I have set the LORD always before me: because he is at my right hand, I shall not be moved.
+
+#### 1 Chronicles 17:9
+Also I will ordain a place for my people Israel, and will plant them, and they shall dwell in their place, and shall be moved no more; neither shall the children of wickedness waste them any more, as at the beginning,
+
+#### Jude 1:24
+Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy,
+
+#### 2 Peter 1:10
+Wherefore the rather, brethren, give diligence to make your calling and election sure: for if ye do these things, ye shall never fall:
+
+#### James 5:12
+But above all things, my brethren, swear not, neither by heaven, neither by the earth, neither by any other oath: but let your yea be yea; and your nay, nay; lest ye fall into condemnation.
+
+#### James 1:2
+My brethren, count it all joy when ye fall into divers temptations;
 Hebrews 4:11Let us labour therefore to enter into that rest, lest any man fall after the same example of unbelief.
-
- 
-
-
-
-Do you have something to say? Do you know something is wrong and you haven’t sounded the alarm? Be encouraged today. Spend time with the Lord and pray about it. Ask the Lord to search your heart and make sure that pride/ haughtiness hasn’t slipped in. Meditate on Ps 131 and speak boldly for the Lord – don’t go in seeking great things for yourself, but for the glory of the Lord. Keep your focus.
-  Don’t think this is for you? If you have children- you are the watchmen over them and their hearts. Do you know someone who has drifted from the faith? Then pray for them and speak to them in love warning everyone everyday.
-
-
-
-
 
 # What was the significance of gatekeepers in the Bible?
 
@@ -122,17 +198,40 @@ David and Samuel appointed 212 gatekeepers for “positions of trust” in guard
 
 Ezra records that 139 gatekeepers made the trip from Babylon to Jerusalem with Zerubbabel (Ezra 2:42). When Nehemiah had finished the rebuilding of the wall around the city of Jerusalem, gatekeepers were some of the first positions he appointed (Nehemiah 7:1). This is significant because, before a city can conduct business, it must be protected from outside invaders. The Lord’s house required gatekeepers for the same reason. Before God’s business could be conducted properly, only the prescribed priests and other designated servants could be allowed through the gates. God had given clear commands about temple business (Exodus 25:8–9; cf. Hebrews 9:1–7). Gatekeepers were part of that holy business, and their positions were considered sacred (1 Chronicles 9:26; Nehemiah 12:47).
 
-We can easily see the parallel for our own lives. Our conscience, the fear of the Lord, and the Holy Spirit are “gatekeepers” for our hearts. “Through the fear of the LORD evil is avoided” (Proverbs 16:6). The Spirit desires our sanctification, giving us the power to repel sin. When temptation comes knocking at our gate, the Holy Spirit nudges our Scripture-informed conscience: “That’s dangerous. Don’t go there.” The divine Gatekeeper acts on our behalf to keep invaders from destroying us.
+Our conscience, the fear of the Lord, and the Holy Spirit are “gatekeepers” for our hearts. “Through the fear of the LORD evil is avoided” (Proverbs 16:6). The Spirit desires our sanctification, giving us the power to repel sin. When temptation comes knocking at our gate, the Holy Spirit nudges our Scripture-informed conscience: “That’s dangerous. Don’t go there.” The divine Gatekeeper acts on our behalf to keep invaders from destroying us.
 
-John Bunyan illustrates the need for a spiritual “gatekeeper” in his book The Holy War. In this allegory, Bunyan likens humanity to a city: “This famous town of Mansoul had five gates, in at which to come, out of which to go; and these were . . . impregnable, and such as could never be opened nor forced but by the will and leave of those within. The names of the gates were these: Ear-gate, Eye-gate, Mouth-gate, Nose-gate, and Feel-gate” (chapter 1, p. 62–63). In other words, the five senses are the “gates” by which the human soul interacts with the world through the physical body. These gates must be guarded, and, in Bunyan’s allegory, Mr. Godly-Fear is just the man to do it. Godly-Fear was a trustworthy man of “courage, conduct, and valour,” and the enemy attacked Mansoul in vain, as long as Godly-Fear was the gatekeeper (chapter 15, p. 285).
+John Bunyan illustrates the need for a spiritual “gatekeeper” in his book The Holy War. In this allegory, Bunyan likens humanity to a city: “This famous town of Mansoul had five gates, in at which to come, out of which to go; and these were . . . impregnable, and such as could never be opened nor forced but by the will and leave of those within. The names of the gates were these: Ear-gate, Eye-gate, Mouth-gate, Nose-gate, and Feel-gate”. In other words, the five senses are the “gates” by which the human soul interacts with the world through the physical body. These gates must be guarded, and, in Bunyan’s allegory, Mr. Godly-Fear is just the man to do it. Godly-Fear was a trustworthy man of “courage, conduct, and valour,” and the enemy attacked Mansoul in vain, as long as Godly-Fear was the gatekeeper.
 
 When we ignore our Gatekeeper, we put ourselves and those we love in jeopardy. But when we, in godly fear, heed the warnings of the Word and the Holy Spirit, we are safe. Our hearts and lives are protected from Satan’s invasive schemes (Ephesians 6:11; 2 Corinthians 2:11).
 
+### Summary of the John Bunyan's book The Holy War
 
+In John Bunyan's allegorical work *The Holy War*, the concept of the five gates—Ear-gate, Eye-gate, Mouth-gate, Nose-gate, and Feel-gate—is central to understanding how the human soul interacts with the physical body. These gates symbolize the five senses and serve as entry points through which external influences can reach the soul, affecting a person's moral and spiritual state.
 
+### 1. **Ear-gate (Hearing)**
+   - **Significance:** This gate represents the sense of hearing. It symbolizes how what we listen to can influence our thoughts, beliefs, and ultimately, our soul.
+   - **Implication:** If one is not vigilant, harmful ideas, gossip, or corrupting influences can enter the soul through hearing, leading to spiritual and moral degradation.
+
+### 2. **Eye-gate (Seeing)**
+   - **Significance:** This gate corresponds to the sense of sight. It represents how what we see can have a profound impact on our inner life.
+   - **Implication:** By viewing inappropriate or morally corrupt images or actions, one’s soul can be tainted, leading to sin and spiritual weakness.
+
+### 3. **Mouth-gate (Speaking)**
+   - **Significance:** This gate represents the sense of taste, but more broadly, it also relates to speech. The words we speak can reflect and shape our inner condition.
+   - **Implication:** What we say can either build up or tear down both ourselves and others. If the Mouth-gate is not guarded, it can lead to harmful words that impact the soul negatively.
+
+### 4. **Nose-gate (Smelling)**
+   - **Significance:** The Nose-gate represents the sense of smell. While it is less directly tied to moral and spiritual influence compared to the other senses, it still plays a role in how the soul interacts with the physical world.
+   - **Implication:** The things we take in through smell can evoke memories or desires, influencing our emotional and spiritual state.
+
+### 5. **Feel-gate (Touching)**
+   - **Significance:** This gate corresponds to the sense of touch. It represents physical interaction with the world and how it can influence the soul.
+   - **Implication:** Improper or excessive physical indulgence can lead to moral compromise, illustrating the importance of controlling one's physical desires to protect the soul.
+
+### **Relation to the Soul and Body**
+In Bunyan's allegory, these five gates are crucial because they symbolize how external influences (what we see, hear, speak, smell, and touch) enter our body and reach our soul. The soul, in Christian thought, is often seen as the seat of moral and spiritual life. Therefore, guarding these gates is necessary to maintain spiritual purity and moral integrity. The allegory emphasizes the need for vigilance and discipline in controlling the senses to protect one's soul from corrupting influences.
 
 # 100 Bible Verses about Gatekeepers
- 
 
 Psalm 84:10 ESV / 213 helpful votes 
 
@@ -533,11 +632,3 @@ Ezra 7:12-26 ESV / 4 helpful votes
 Ezra 4:1-24 ESV / 4 helpful votes 
 
 Now when the adversaries of Judah and Benjamin heard that the returned exiles were building a temple to the Lord, the God of Israel, they approached Zerubbabel and the heads of fathers' houses and said to them, “Let us build with you, for we worship your God as you do, and we have been sacrificing to him ever since the days of Esarhaddon king of Assyria who brought us here.” But Zerubbabel, Jeshua, and the rest of the heads of fathers' houses in Israel said to them, “You have nothing to do with us in building a house to our God; but we alone will build to the Lord, the God of Israel, as King Cyrus the king of Persia has commanded us.” Then the people of the land discouraged the people of Judah and made them afraid to build and bribed counselors against them to frustrate their purpose, all the days of Cyrus king of Persia, even until the reign of Darius king of Persia. ...
-
-Suggest a Verse
-Enter a Verse Reference (e.g., John 3:16-17)
-
-  
-Visit the Bible online to search for words if you don’t know the specific passage your’re looking for.
-
-Unless otherwise indicated, all content is licensed under a Creative Commons Attribution License. All Scripture quotations, unless otherwise indicated, are taken from The Holy Bible, English Standard Version. Copyright ©2001 by Crossway Bibles, a publishing ministry of Good News Publishers. Contact me: openbibleinfo (at) gmail.com.
