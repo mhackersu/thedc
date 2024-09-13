@@ -1,5 +1,4 @@
-# Gospel
+# The Good News
 
-## Horseback Gospel
+[Cowboy Gospel](https://www.godshorsebackgospel.com)
 
-## Cowboy Church
