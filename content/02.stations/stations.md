@@ -1,6 +1,6 @@
 # Stations
 
-## Praying the Stations of the Cross
+## The Stations of the Cross
 
     There is no practice more profitable for the entire sanctification of the soul than the frequent meditation of the sufferings of Jesus Christ.
     St. Alphonsus Ligouri
@@ -53,12 +53,14 @@ There are several versions of the stations of the cross. This list follows along
 
 **Share this Stations of the Cross Chaplet with a friend.**
 
-## Let Us Pray.
+## Let Us Pray
+
 ### Sign of the Cross
 
 In the name of the Father, and the Son, and the Holy Spirit, amen.
 
-### The Apostle’s Creed – at the crucifix
+## The Apostle’s Creed
+### At The Crucifix
 
 I believe in God,
 the Father Almighty,
@@ -80,7 +82,8 @@ the forgiveness of sins,
 the resurrection of the body,
 and life everlasting. Amen.
 
-### Act of Contrition – at the first bead
+## Act of Contrition
+### At The First Bead
 
 My God, I am sorry for my sins with all of my heart. In choosing to do wrong and failing to do good, I have sinned against You whom I should love above all things. I firmly intend, with the help of your grace, to do penance, to sin no more, and to avoid whatever leads me to sin. Our Savior Jesus Christ suffered and died for us. In his name, my God, have mercy.
 Our Father – at the second bead
@@ -96,7 +99,8 @@ Prayer to Jesus Christ Crucified – at the fifth bead
 
 My good and dear Jesus, I kneel before you, asking you most earnestly to engrave upon my heart a deep and lively faith, hope and charity, with true repentence for my sins, and a firm resolve to make amends. As I reflect upon your five wounds and dwell upon them with deep compassion and grief, I recall, good Jesus, the words the prophet David spoke long ago of you: “They have pierced my hands and my feet, they have counted all my bones!”
 
-### The First Station: Jesus is Condemned to Death
+## The First Station
+### Jesus is Condemned
 
 We adore You, O Christ, and we praise You because by Your holy cross You have redeemed the world.
 
@@ -124,7 +128,8 @@ or
 
 Lord Jesus crucified, have mercy on us.
 
-### THE Second STATION: JESUS Bears His Cross
+## The Second Station
+### Jesus Bears His Cross
 
 We adore You, O Christ, and we praise You because by Your holy cross You have redeemed the world.
 
@@ -152,7 +157,11 @@ or
 
 Lord Jesus crucified, have mercy on us.
 
-### THE Third STATION: Jesus Falls for the First Time
+## The Third Station
+### Consider the Weight
+
+Luke 23:26-31
+Jesus falls under the weight of the cross.
 
 We adore You, O Christ, and we praise You because by Your holy cross You have redeemed the world.
 
@@ -177,7 +186,8 @@ or
 
 Lord Jesus crucified, have mercy on us.
 
-### THE Fourth STATION: JESUS MEets His Mother
+## The Fourth Station 
+### Jesus Meets His Mother
 
 We adore You, O Christ, and we praise You because by Your holy cross You have redeemed the world.
 
@@ -202,7 +212,13 @@ or
 
 Lord Jesus crucified, have mercy on us.
 
-### THE Fifth STATION: Simon Helps Jesus Carry His Cross
+## The Fifth Station
+### Simon Helps Jesus
+
+Luke 23:26
+And as they led him away, they seized one Simon of Cyrene, who was coming in from the country, and laid on him the cross, to carry it behind Jesus.
+
+##### Be Like Simon
 
 We adore You, O Christ, and we praise You because by Your holy cross You have redeemed the world.
 
@@ -230,7 +246,20 @@ or
 
 Lord Jesus crucified, have mercy on us.
 
-### THE Sixth STATION: Veronica Wipes the Face of Jesus
+## The Sixth Station
+### Have Courage
+
+Meditation
+"Your face, Lord, do I seek. Hide not your face from me" (Ps 27:8-9). Veronica - Bernice, in the Greek tradition - embodies the universal yearning of the devout men and women of the Old Testament, the yearning of all believers to see the face of God. On Jesus' Way of the Cross, though, she at first did nothing more than perform an act of womanly kindness: she held out a facecloth to Jesus. She did not let herself be deterred by the brutality of the soldiers or the fear which gripped the disciples. She is the image of that good woman, who, amid turmoil and dismay, shows the courage born of goodness and does not allow her heart to be bewildered. "Blessed are the pure in heart", the Lord had said in his Sermon on the Mount, "for they shall see God" (Mt 5:8). At first, Veronica saw only a buffeted and pain-filled face. Yet her act of love impressed the true image of Jesus on her heart: on his human face, bloodied and bruised, she saw the face of God and his goodness, which accompanies us even in our deepest sorrows. Only with the heart can we see Jesus. Only love purifies us and gives us the ability to see. Only love enables us to recognize the God who is love itself. 
+
+Prayer
+Lord, grant us restless hearts, hearts which seek your face. Keep us from the blindness of heart which sees only the surface of things. Give us the simplicity and purity which allow us to recognize your presence in the world. When we are not able to accomplish great things, grant us the courage which is born of humility and goodness. Impress your face on our hearts. May we encounter you along the way and show your image to the world.
+
+From the Book of the Prophet Isaiah. 53:2-3
+He had no form or comeliness that we should look at him, and no beauty that we should desire him. He was despised and rejected by men; a man of sorrows, and acquainted with grief; and as one from whom men hide their faces he was despised, and we esteemed him not.
+
+From the Book of Psalms. 27:8-9
+You have said, "Seek my face". My heart says to you, "Your face, Lord, do I seek". Hide not your face from me. Turn not your servant away in anger, you who have been my help. Cast me not off, forsake me not, O God of my salvation.
 
 We adore You, O Christ, and we praise You because by Your holy cross You have redeemed the world.
 
@@ -255,7 +284,8 @@ or
 
 Lord Jesus crucified, have mercy on us.
 
-### THE Seventh STATION: JESUS Falls for the Second Time
+## The Seventh Station
+### Jesus Falls for the Second Time
 
 We adore You, O Christ, and we praise You because by Your holy cross You have redeemed the world.
 
