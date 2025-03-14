@@ -32,7 +32,7 @@ export default defineAppConfig({
     footer: {
       credits: {
         icon: 'noto-v1:orthodox-cross',
-        text: 'Be blsssed'
+        text: ''
       }
     }
   }
