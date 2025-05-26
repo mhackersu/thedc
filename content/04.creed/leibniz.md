@@ -1,5 +1,5 @@
 ---
-title: Timeline
+title: Leibniz
 main:
   fluid: true
 ---
