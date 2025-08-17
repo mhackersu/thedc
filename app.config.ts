@@ -6,11 +6,11 @@ export default defineAppConfig({
     image: 'noto-v1:orthodox-cross',
     socials: {
       twitter: 'ki5ibd',
-      github: 'mhackersu/thedc.com',
+      github: 'mhackersu/thedc',
     },
     github: {
       branch: 'main',
-      repo: 'thedc.com',
+      repo: 'thedc',
       owner: 'mhackersu',
       edit: true
     },
